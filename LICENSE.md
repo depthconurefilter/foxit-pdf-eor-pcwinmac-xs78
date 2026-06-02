@@ -1,4 +1,4 @@
-# 
+# Nativo Foxit PDF Editor predefinições para Mac OS | Seguro Foxit PDF Editor predefinições para PC Windows. Com suporte para autônomos e integração com contabilidade — otimizado para máximo desempenho em cada plataforma.
 
 
 
